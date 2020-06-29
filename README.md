@@ -2,9 +2,9 @@
 
 **Projet incomplet**
 
-**Video** : [lien](https://mega.nz/file/vEwQja5J#bkfdCDYI_SOctz-9YUHuATT4N5UvVfFmKdO6laoTrfA)
+**Capture Vidéo de la solution proposé** : [lien](https://mega.nz/file/vEwQja5J#bkfdCDYI_SOctz-9YUHuATT4N5UvVfFmKdO6laoTrfA)
 
-**Formulaire** : [lien](https://docs.google.com/forms/d/e/1FAIpQLSdWD4o-epTMj6uHX9IrtFe_DqX-NAkRDq9HWCxjnBL1VQWupQ/viewform)
+**Rapport d'échange** : [lien](https://docs.google.com/forms/d/e/1FAIpQLSdWD4o-epTMj6uHX9IrtFe_DqX-NAkRDq9HWCxjnBL1VQWupQ/viewform)
 
 **Plan de communication** : [lien](https://docs.google.com/spreadsheets/d/1e9gkSgg5ro2pXULzgpPGTuQn5IVjb52I5d0Tw1yE150/edit?usp=sharing)
 
